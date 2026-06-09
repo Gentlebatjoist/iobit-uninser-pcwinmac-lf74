@@ -1,4 +1,4 @@
-# 
+# Élite IObit Uninstaller preajustes para Mac OS | Oficial IObit Uninstaller preajustes para PC Windows. Con gestión de inicio automático y interfaz personalizable — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
